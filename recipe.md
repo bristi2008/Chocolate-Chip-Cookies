@@ -1,0 +1,1 @@
+First, whip the butter till it becomes creamy. Then add powdered sugar and whip again. Then add flour and mix. then add milk and knead till it holds shape. then add chocolte chips and mix. Then prheat and bake the cookies at 180 degree for 15 mins.
